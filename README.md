@@ -12,4 +12,5 @@ miguel.assunpcao.machado@escola.pr.gov.br
 
 @mgznn
 
-(https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fraphael-veiga-palmeiras-supercopa-flamengo-gif-27482383&psig=AOvVaw2hNZhEhOgyVY2zvdXo35WY&ust=1691752012384000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjUpsD50YADFQAAAAAdAAAAABAL)https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fraphael-veiga-palmeiras-supercopa-flamengo-gif-27482383&psig=AOvVaw2hNZhEhOgyVY2zvdXo35WY&ust=1691752012384000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjUpsD50YADFQAAAAAdAAAAABAL
+[(https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fraphael-veiga-palmeiras-supercopa-flamengo-gif-27482383&psig=AOvVaw2hNZhEhOgyVY2zvdXo35WY&ust=1691752012384000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjUpsD50YADFQAAAAAdAAAAABAL)https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fraphael-veiga-palmeiras-supercopa-flamengo-gif-27482383&psig=AOvVaw2hNZhEhOgyVY2zvdXo35WY&ust=1691752012384000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjUpsD50YADFQAAAAAdAAAAABAL
+](https://tenor.com/pt-BR/view/raphael-veiga-palmeiras-supercopa-flamengo-gif-27482383)https://tenor.com/pt-BR/view/raphael-veiga-palmeiras-supercopa-flamengo-gif-27482383
