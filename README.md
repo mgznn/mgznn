@@ -12,5 +12,4 @@ miguel.assunpcao.machado@escola.pr.gov.br
 
 @mgznn
 
-[(https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fraphael-veiga-palmeiras-supercopa-flamengo-gif-27482383&psig=AOvVaw2hNZhEhOgyVY2zvdXo35WY&ust=1691752012384000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjUpsD50YADFQAAAAAdAAAAABAL)https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fraphael-veiga-palmeiras-supercopa-flamengo-gif-27482383&psig=AOvVaw2hNZhEhOgyVY2zvdXo35WY&ust=1691752012384000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjUpsD50YADFQAAAAAdAAAAABAL
-](https://tenor.com/pt-BR/view/raphael-veiga-palmeiras-supercopa-flamengo-gif-27482383)https://tenor.com/pt-BR/view/raphael-veiga-palmeiras-supercopa-flamengo-gif-27482383
+<div class="tenor-gif-embed" data-postid="27482383" data-share-method="host" data-aspect-ratio="1.3617" data-width="100%"><a href="https://tenor.com/view/raphael-veiga-palmeiras-supercopa-flamengo-gif-27482383">Raphael Veiga GIF</a>from <a href="https://tenor.com/search/raphael-gifs">Raphael GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
